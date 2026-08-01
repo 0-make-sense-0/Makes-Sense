@@ -1,2 +1,2 @@
 # Makes-Sense
-a blog about asking why the world is the way it is (history, epistemology, pure human experience)
+(cannot define a blog that doesn't exist)
